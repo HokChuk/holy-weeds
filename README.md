@@ -1,1 +1,1 @@
-# holy-weeds
+# Repo for wedding website of james and apple
